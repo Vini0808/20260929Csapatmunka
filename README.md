@@ -1,2 +1,2 @@
 ﻿# 20260929Csapatmunka
-Molnár Vince, Karsai Zeététny, Oláh Gergő, Hegedűs Sándor
+Molnár Vince, Karsai Zététny, Oláh Gergő, Hegedűs Sándor
